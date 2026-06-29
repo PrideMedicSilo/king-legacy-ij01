@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with king legacy advanced Script, the #1 Script. Includes fly and auto-heal for unbeatable performance.
 
 
 
